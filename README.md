@@ -5,7 +5,7 @@ Once upon a time, in a faraway land, there was a yung boy named Tim. Tim lived i
 
 As he walked through the dense forrest, he stumbled upon a strange looking creatur. It had big, floopy ears and a long, bushy tale. The creature looked at Tim and said, "Hello ther, human. My name is Fluffy, and I'm a magical rabit."
 
-Tim was amaze to meet a talking rabbit. He replied, "Wow, I never seen anything like you before! What kind of magic can you do?"
+Tim was amazed to meet a talking rabbit. He replied, "Wow, I never seen anything like you before! What kind of magic can you do?"
 
 Fluffy smiled and said, "I can grant you three wishes, but be carefull what you wish for. Magic is unpredicatable and can have unforseen consequenses."
 
