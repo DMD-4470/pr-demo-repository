@@ -9,7 +9,7 @@ Tim was amaze to meet a talking rabbit. He replied, "Wow, I never seen anything 
 
 Fluffy smiled and said, "I can grant you three wishes, but be carefull what you wish for. Magic is unpredicatable and can have unforseen consequenses."
 
-Tim thought hard about his wishes. He said, "First, I wish for a never-ending suply of choclate. Second, I want to be the best futball player in the world. And third, I wish for peace and happyness for everyone in my villige."
+Tim thought hard about his wishes. He said, "First, I wish for a never-ending suply of chocolate. Second, I want to be the best futball player in the world. And third, I wish for peace and happyness for everyone in my villige."
 
 Fluffy waved his paws and said, "Your wishes are granted, but remeber, magic comes with a price."
 
