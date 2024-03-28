@@ -11,7 +11,7 @@ Fluffy smiled and said, "I can grant you three wishes, but be carefull what you 
 
 Tim thought hard about his wishes. He said, "First, I wish for a never-ending supply of chocolate. Second, I want to be the best futball player in the world. And third, I wish for peace and happyness for everyone in my villige."
 
-Fluffy waved his paws and said, "Your wishes are granted, but remeber, magic comes with a price."
+Fluffy waved his paws and said, "Your wishes are granted, but remember, magic comes with a price."
 
 Tim thanked Fluffy and headed back home, excited to see his wishes come true. However, he soon realized that the never-ending chocolate was causing him to feel sick, being the best football player made him too busy to spend time with his frends, and the peace in the village was so quiet that it was actualy quite boring.
 
